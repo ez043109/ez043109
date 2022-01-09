@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ez043109
-- 👀 I’m interested in Android and IOS.
+- 👀 I’m interested in gaming, science fiction, traveling, and food.
 - 🌱 I’m currently learning Android and IOS development.
 - 💞️ I’m looking to collaborate on nothing at the moment.
 - 📫 How to reach me ez043109@gmail.com
